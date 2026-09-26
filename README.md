@@ -1,0 +1,1 @@
+# SolidNorm-Future-Standard-Fuck-All-Yall-License
